@@ -1,1 +1,1 @@
-# publicfiguresonpalestine
+# Public figures on Palestine
